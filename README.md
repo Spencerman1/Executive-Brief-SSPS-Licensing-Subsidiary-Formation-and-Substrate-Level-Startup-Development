@@ -1,0 +1,2 @@
+# Executive-Brief-SSPS-Licensing-Subsidiary-Formation-and-Substrate-Level-Startup-Development
+Executive Brief: SSPS Licensing, Subsidiary Formation, and Substrate‑Level Startup Development 1. Strategic Overview The SSPS Licensing Framework enables two parallel growth channels:  A. SSPS‑Owned Subsidiaries These are entities directly formed under the SSPS umbrella. They serve as flagship operators, vertical anchors, and continuity‑preserving
